@@ -1,5 +1,5 @@
-# HowToGetMoney
-HowToGetMoney
+# The best & fastest way to get MONEY
+
 
 
 Provide TRAINING 
